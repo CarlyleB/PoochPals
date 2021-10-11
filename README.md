@@ -1,1 +1,1 @@
-# pupper_pals
+# Pupper Pals
