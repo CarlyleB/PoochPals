@@ -1,1 +1,1 @@
-# Pupper Pals
+# Pooch Pals
